@@ -1,2 +1,12 @@
-# ztoa-repur
-Zero to App Repository of Rohan Epur
+
+
+______________________________________________________
+
+
+				# ztoa-repur 
+
+                           ;]
+
+		Zero to App Repository of Rohan Epur!
+Swag ninaad is swag.
+______________________________________________________
